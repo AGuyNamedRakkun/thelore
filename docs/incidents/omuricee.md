@@ -18,7 +18,7 @@ For some context, Omuricee was muted when this happened. He had 1 day left on hi
 > Context for the link (https://canary.discord.com/channels/974468300304171038/974483607211089930/1008434210782068918)
  [![9](https://i.imgur.com/hwjXzlS.png "9")](https://i.imgur.com/hwjXzlS.png "9")
 
-[![10](https://i.imgur.com/xKJ2ZMb.png "10")](https://i.imgur.com/xKJ2ZMb.png "10")
+[![10](https://files.catbox.moe/fcdv8d.png "10")](https://files.catbox.moe/fcdv8d.png "10")
 [![11](https://i.imgur.com/coDnz1j.png "11")](https://i.imgur.com/coDnz1j.png "11")
 [![12](https://i.imgur.com/8GdQhHs.png "12")](https://i.imgur.com/8GdQhHs.png "12")
 [![13](https://i.imgur.com/GeBiRit.png "13")](https://i.imgur.com/GeBiRit.png "13")
@@ -27,7 +27,7 @@ https://discord.com/channels/974468300304171038/979752057579905054/1010320073124
 > [![14](https://i.imgur.com/e3VXDkg.png "14")](https://i.imgur.com/e3VXDkg.png "14")
 > [![15](https://i.imgur.com/3LN7Xll.png "15")](https://i.imgur.com/3LN7Xll.png "15")
 
-[![16](https://i.imgur.com/5Igns5o.png "16")](https://i.imgur.com/5Igns5o.png "16")
+[![16](https://files.catbox.moe/rskoj4.png "16")](https://files.catbox.moe/rskoj4.png "16")
 
 > Context for the link (https://discord.com/channels/974468300304171038/974483661971927110/1010313163763363881)
 > [![17](https://i.imgur.com/qgXTVsr.png "17")](https://i.imgur.com/qgXTVsr.png "17")
@@ -38,10 +38,10 @@ Some Anichi lore ("he" refers to Omuricee who was also a member in Anichiraku):
 [![20](https://i.imgur.com/1QewZ5R.png "20")](https://i.imgur.com/1QewZ5R.png "20")
 [![21](https://i.imgur.com/KGznWmJ.png "21")](https://i.imgur.com/KGznWmJ.png "21")
 [![22](https://i.imgur.com/6ydqcDm.png "22")](https://i.imgur.com/6ydqcDm.png "22")
-[![23](https://i.imgur.com/3UUINbA.png "23")](https://i.imgur.com/3UUINbA.png "23")
+[![23](https://files.catbox.moe/nf8yo8.png"23")](https://files.catbox.moe/nf8yo8.png"23")
 [![24](https://i.imgur.com/rXOiqLA.png "24")](https://i.imgur.com/rXOiqLA.png "24")
 [![25](https://i.imgur.com/e2gyIw7.png "25")](https://i.imgur.com/e2gyIw7.png "25")
 [![26](https://i.imgur.com/iH4VWZo.png "26")](https://i.imgur.com/iH4VWZo.png "26")
-> [![27](https://i.imgur.com/cOSAcMm.png "27")](https://i.imgur.com/cOSAcMm.png "27")
+> [![27](https://files.catbox.moe/ud17hj.png "27")](https://files.catbox.moe/ud17hj.png "27")
 
-[![28](https://i.imgur.com/puKHfGj.png "28")](https://i.imgur.com/puKHfGj.png "28")
+[![28](https://files.catbox.moe/gazhnf.png "28")](https://files.catbox.moe/gazhnf.png "28")

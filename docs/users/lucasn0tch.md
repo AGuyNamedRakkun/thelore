@@ -13,6 +13,6 @@ label: Lucasn0tch
 
 [![](https://i.imgur.com/RhXVN2d.jpg)](https://i.imgur.com/RhXVN2d.jpg)
 [![](https://i.imgur.com/1EG5U2w.png)](https://i.imgur.com/1EG5U2w.png)
-[![](https://i.imgur.com/IV1uksu.png)](https://i.imgur.com/IV1uksu.png)
+[![](https://files.catbox.moe/q7fzkq.png)](https://files.catbox.moe/q7fzkq.png)
 [![](https://i.imgur.com/sBZBhNq.png)](https://i.imgur.com/sBZBhNq.png)
 [![](https://i.imgur.com/Xe2K3hW.png)](https://i.imgur.com/Xe2K3hW.png)

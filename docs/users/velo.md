@@ -115,6 +115,6 @@ Velo's letter to his dad asking for money.
 
 [![](https://i.imgur.com/niiJqJH.png)
 [![](https://i.imgur.com/zM9Q1Et.png)
-[![](https://i.imgur.com/vkLflfr.png)](https://i.imgur.com/vkLflfr.png)
+[![](https://files.catbox.moe/14s3kp.png)](https://files.catbox.moe/14s3kp.png)
 [![](https://i.imgur.com/jLLMRRU.png)](https://i.imgur.com/jLLMRRU.png)
 [![](https://i.imgur.com/k9EvVHU.png)](https://i.imgur.com/k9EvVHU.png)
